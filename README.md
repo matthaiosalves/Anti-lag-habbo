@@ -7,6 +7,6 @@
 
 [![Software Preview](http://img.youtube.com/vi/ow_I-FCUyOE/0.jpg)](http://www.youtube.com/watch?v=ow_I-FCUyOE "Software Preview")
 
-## Lepatto in Habbo Air
+## Habbo Extension
 
-[![Software Preview](http://img.youtube.com/vi/Dqigjdi6w1o/0.jpg)](http://www.youtube.com/watch?v=Dqigjdi6w1o "Software Preview")
+[![Software Preview](http://img.youtube.com/vi/Wp3o0evQfqc/0.jpg)](http://www.youtube.com/watch?v=Wp3o0evQfqc "Software Preview")
